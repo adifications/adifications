@@ -1,4 +1,4 @@
-# 💫 Hi I'm Aditya!
+# Hi I'm Aditya!
 - I'm a B.Tech student from Kochi, India and right now I am trying to be more active here!
 - Computer Science and Engineering at MACE
 - Designer on weekends
